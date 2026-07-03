@@ -1,4 +1,4 @@
-# 
+# Advanced Revo Uninstaller templates for Mac OS | Turbo Revo Uninstaller templates for PC Windows. Featuring system diagnostics and deep scan — optimized for maximum performance on every platform.
 
 
 
